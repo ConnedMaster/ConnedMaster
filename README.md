@@ -7,8 +7,8 @@
 
 -I stream and post YT youtube Vids from time to time, tho mainly gaming content but consider supporting!😊
 -Youtube - www.youtube.com/@Dusshe360
--Twitch - twitch.tv/dussshe
--Tiktok - tiktok.com/@dusshe
+-Twitch - [twitch.tv/dussshe](https://www.twitch.tv/dussshe)
+-Tiktok - [tiktok.com/@dusshe](https://www.tiktok.com/@dusshe?is_from_webapp=1&sender_device=pc)
 
 <!---
 ConnedMaster/ConnedMaster is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
